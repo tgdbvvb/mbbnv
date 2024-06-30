@@ -1,8 +1,8 @@
 Telegram 🚀每日免费节点:https://t.me/autofreevpn
 
-Telegram 🔥客户端中文汉化CN:https://t.me/go2cn
+Telegram 🔥客户端中文汉化CN: https://t.me/go2cn
 
-Telegram 🔥最强群组机器人🤖:https://t.me/soso
+Telegram 🔥最强群组机器人🤖: https://t.me/soso
 
 Telegram 🔥最强搜索机器人JiSou🤖:t.me/jisou
 
